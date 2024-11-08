@@ -1,4 +1,3 @@
-#meiludescription
 .  heart in a head lock
 
 Hello!! HIHII!! im mei-lumiang u can call me Meilu or Wuxi!!, more nicknames in my pronouns page!!
